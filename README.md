@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Biest
+👋 Hi, I’m @Biest
 
 👨‍💻 Future Blockchain Developer on a Quest for Excellence 🌟
 
